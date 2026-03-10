@@ -1,7 +1,7 @@
 ﻿# Julius Shade
 
 **AI Engineer & Full-Stack Developer** | GE Aerospace | Cincinnati, OH  
-💼 [LinkedIn](https://linkedin.com/in/julius-shade)
+🌐 [juliusshade.com](https://juliusshade.com) | 💼 [LinkedIn](https://linkedin.com/in/julius-shade)
 
 ## About Me
 
